@@ -1,2 +1,2 @@
-Todos os projetos estão em Inglês
+Todos os projetos estão em Inglês |
 All projects are in English
